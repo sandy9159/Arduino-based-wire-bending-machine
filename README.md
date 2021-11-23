@@ -185,8 +185,7 @@ I always prefer [JLCPCB.com](https://jlcpcb.com/IAT) for my PCB needs, [JLCPCB.c
 $2 for 1-4 Layer PCBs, free SMT assembly monthly.
 
 
-and this is not it if you are new customer for [JLCPCB.com](https://jlcpcb.com/IAT) you will get 18$ coupon on your
-first registration to their site its limited period offer so what are waiting for go  and get your benefit. 
+If new user signup today from this link [JLCPCB](https://jlcpcb.com/IAT ) you will get 30$ coupon from [JLCPCB](https://jlcpcb.com/IAT ).
 
 
 [Click here to visit JLCPCB.com](https://jlcpcb.com/IAT)
